@@ -5,3 +5,4 @@
 👩🏻‍💻 Currently self learning about data analytics and data visualization<br/>
 
 📎 [Check out my resume here](https://drive.google.com/file/d/1IqC0n9tDSzfaz-3YFzxaEcTyQzwpMam5/view?usp=sharing) <br/>
+🔗 [Connect with me](https://www.linkedin.com/in/evelyn--lo/)<br/>
